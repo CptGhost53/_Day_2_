@@ -1,1 +1,1 @@
-Merhaba bu gün verdin Task'i yapıyor olucam öğrendimi göstermek içinde ilk bunu yapıyorum.
+Merhaba, bugün verilen görevi yapıyor olacağım. Öğrendiğimi göstermek için de ilk olarak bunu yapıyorum.
